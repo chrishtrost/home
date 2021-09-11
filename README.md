@@ -5,4 +5,9 @@ Welcome to my homepage.
 
 **Under maintenance.**
 
-\*Expect more soon\*
+\*Updated soon.
+
+
+http://www.linkedin.com/in/chris-trost
+
+http://www.instagram.com/chris26trost

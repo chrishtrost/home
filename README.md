@@ -1,7 +1,8 @@
-# home
+# Chris Trost
+
 
 Welcome to my homepage.
 
-Under maintainance.
+**Under maintenance.**
 
-//Expect more soon.//
+\\Expect more soon.\\

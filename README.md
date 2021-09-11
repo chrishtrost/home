@@ -5,7 +5,19 @@ Welcome to my homepage.
 
 **Under maintenance.**
 
-\*Updated soon.
+*Check back soon*
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 http://www.linkedin.com/in/chris-trost
